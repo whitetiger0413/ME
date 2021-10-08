@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @whitetiger0413
 - 👀 I’m interested in minecraft
 - 🌱 I’m currently learning minecraft and coding
-- 💞️ I’m looking to collaborate on my friend
+- 💞️ I’m looking to collaborate who can do coding very good, because I cannot do coding very much, and who playes minecraft
 - 📫 How to reach me pikajaylee@gmail.com
 
 <!---
